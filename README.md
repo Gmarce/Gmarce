@@ -33,7 +33,7 @@ Estoy absolutamente **fascinada** con el impacto revolucionario que la tecnolog�
 🌎 Orgullosamente venezolana, creo firmemente que **el conocimiento no tiene fronteras** y que la tecnología puede conectar a personas de todo el mundo. Estoy emocionada por aprender de diferentes culturas y compartir ideas innovadoras.  
 
 ✈️ **En mis momentos libres:**  
-- 🎨 Me encanta experimentar con diseño gráfico y creatividad visual.  
+- 🎨 Me encanta experimentar aprendiendo cosas nuevas.  
 - 📚 Disfruto aprendiendo de cursos, libros, y comunidades tecnológicas.  
 - 🌄 Busco inspiración en la naturaleza y las aventuras al aire libre.  
 
