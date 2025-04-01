@@ -41,9 +41,9 @@ Estoy absolutamente **fascinada** con el impacto revolucionario que la tecnolog�
 
 ## 💼 **¿Qué Puedo Aportar a Tu Proyecto?**
 ✨ Si estás buscando a alguien:  
-- **Curioso/a y adaptable,** dispuesto/a a aprender siempre.  
-- **Detallista y apasionado/a,** con interés en proyectos tecnológicos desafiantes.  
-- **Colaborativo/a,** comprometido/a con el trabajo en equipo.  
+- **Curiosa y adaptable,** dispuesta a aprender siempre.  
+- **Detallista y apasionada,** con interés en proyectos tecnológicos desafiantes.  
+- **Colaborativa,** comprometido/a con el trabajo en equipo.  
 
 ¡Entonces soy la persona ideal para contribuir y crecer juntos! 🌟  
 
